@@ -4,9 +4,9 @@ I’m excited to share a special milestone in my professional journey — I’ve
 
 I’m truly grateful for the warm welcome and support from the entire team. I was also happy to receive a thoughtful **welcome gift — a new laptop and backpack** 💻🎒.
 
-More than just a gift, it reflects the culture of making employees feel **welcomed, valued, and supported from day one**.
+More than just a gift, it reflects the culture of making employees feel **welcomed, valued and supported from day one**.
 
-I’m looking forward to **learning, taking on new challenges, exploring new technologies, and contributing to meaningful projects**. 🚀
+I’m looking forward to **learning, taking on new challenges, exploring new technologies and contributing to meaningful projects**. 🚀
 
 🙏 Thank you to **Team AppNetWise** for the warm welcome and support.
 
