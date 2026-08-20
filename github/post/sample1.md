@@ -40,7 +40,7 @@ Together, they gave me a glimpse into how the **developer experience is evolving
 
 ### 🙏 Grateful for the Opportunity
 
-A sincere thank you to **AppNetWise, my manager, and the entire team** for providing this valuable learning opportunity and encouraging continuous learning.
+A sincere thank you to **Team AppNetWise** for providing this valuable learning opportunity and encouraging continuous learning.
 
 The past three weeks have given me a stronger foundation, new perspectives, and greater confidence to apply these concepts in practical projects.
 
